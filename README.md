@@ -1,1 +1,1 @@
-# Podstawy-Bankowo-ci
+# Podstawy-Bankowosci
